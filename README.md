@@ -1,0 +1,3 @@
+- 👀 Learning web3 and open for collabs
+- 📫 Reach me on X @xugiyo
+- ⚡ Fun fact: Always down for fried rice
